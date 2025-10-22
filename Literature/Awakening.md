@@ -25,8 +25,8 @@ it with mine eyes, but rather tasted it upon my breath:
 Fire of deepest jade, a voracious blaze, insatiable though  
 it supped constantly upon wisps of tenebrous mist. And as  
 the sombre strands kindled the flame, He painted screams -  
-pained, tortured wails which infected me with anguish, with  
-sorrow, and with empathy, for the souls of those whose loss  
+pained, tortured wails which infected me with anguish and  
+with sorrow; with empathy for the souls of those whose loss  
 I suffered but could never know or ease or cure.
 
 Then, the boy sighed, and from His lips bled enmity. For  
@@ -47,7 +47,7 @@ away for some consideration long forgotten. For now,
 as He closed His mouth, I witnessed not the flame, but  
 that which lay beyond it. An empty nothingness,  
 so vast and so sable as to siphon the light from the flame,  
-consuming it like a gloaming vortex, a void  
+consuming it like a ravenous vortex, a void  
 from which nothing could ever hope to escape.
 
 And thereupon, I beheld the oblivion for what it truly was:  
