@@ -58,7 +58,7 @@ a prison, the flame's prison - His prison.
 indiscernible, an offense to itself, without meaning, or  
 shape, or purpose. But little by little, it gave way,  
 the foreignness became familiar, the obscurity: clear.  
-The sensations were not mine, but it was to me they spoke,  
+The sensations were not mine, but it was to me they spoke;  
 to my will which they bent, or perhaps I to theirs.*
 
 A woman. Dressed in a simple, white gown of fine velvet.  
@@ -67,7 +67,7 @@ of Her delicate form and the fairness of Her silky,
 unblemished skin beneath as it flowed loosely past Her hips  
 and down Her slender legs. Though She looked the other way,  
 I could see the silhouette of Her face cast against the  
-moon through the window, it was clear and warm and focused,  
+moon through the window; it was clear and warm and focused,  
 framed by Her flaxen hair, smooth and without flaw.
 
 She paid me no mind, for Her focus lay elsewhere; on a  
@@ -80,7 +80,7 @@ I was enamored of Her, enthralled by Her.
 And yet, as I stood there, in awe, She was perfectly  
 composed, each movement made with absolute control, the  
 threads at Her fingertips gently humming, beating with a  
-quiet, inexorable pulse, living, breathing, not merely  
+quiet, inexorable pulse; living, breathing, not merely  
 displaced by Her hands, but rather compelled to obey them.  
 Not once did Her focus waver, not once did She offer me so  
 much as a glance. She did not need to, for in Her focus,  
@@ -139,7 +139,7 @@ and beyond, without sky or sea or land or life. It was a
 liminal space, a world which could only exist when it was  
 unobserved, for it was not mine own eyes that witnessed it,  
 but rather senses borrowed from somewhere else, from  
-something else, senses unfit for a poor boy from Abel.
+something else; senses unfit for a poor boy from Abel.
 
 And, as I stood there in that impossible place, a light  
 began to shine. Not an outburst of revelation, but rather  
